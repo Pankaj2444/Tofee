@@ -1,5 +1,7 @@
 # Tsports and Toffee Playlist - Best Experience Guide
 
+Thank You @FunctionError 🙏 🙏 
+
 Welcome to PiratesTV! Follow the instructions below to get the best experience using the OTT-Platforms Playlist.
 
 ![Logo](https://i.ibb.co/KF7tMH3/Pirates-Tv-15.png)
